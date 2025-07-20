@@ -50,4 +50,4 @@ This comprehensive book presents the complete $19 Trillion Solution - a revoluti
 - **Summary Edition** - 50-page condensed version
 
 ---
-*Part of the Tiation & ChaseWhiteRabbit Initiative to transform grief into systemic solutions*
+*A ChaseWhiteRabbit Enterprise Initiative for evidence-based economic transformation*
